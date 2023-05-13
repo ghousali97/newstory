@@ -1,0 +1,2 @@
+# newstory
+My master peace. 
